@@ -1,5 +1,5 @@
-# Title 
-Bubbles under the Sun¡ª¡ªPrediction of Next Stock Disaster
+# Titleï¼š 
+Bubbles under the Sunâ€”â€”Prediction of Next Stock Disaster
 
 #Team members
 Zhang Jingwei
